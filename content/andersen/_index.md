@@ -8,7 +8,7 @@ toc: false
 
 ## 紹介
 
-<img src="images/andersen.png" width=25%>
+<img src="images/andersen.jpg" width=25%>
 
 漢斯·克里斯蒂安·安徒生是丹麥的作家。伊上出名的當然就是伊所寫的囡仔古，除了囡仔古以外，伊嘛捌作詩、寫小說。
 
