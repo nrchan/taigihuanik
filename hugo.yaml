@@ -21,6 +21,9 @@ menu:
     # - name: 文章
     #   pageRef: /docs
     #   weight: 1
+    - name: 教典
+      weight: 1
+      url: "https://sutian.moe.edu.tw/und-hani/"
     - name: 揣物件
       weight: 2
       params:
