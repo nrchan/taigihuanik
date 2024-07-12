@@ -1,1 +1,1 @@
-![測試圖片](/static/images/Hans_Andersen's_Fairy_Tales_(1888).png)
+![測試圖片](/images/Hans_Andersen's_Fairy_Tales_(1888).png)

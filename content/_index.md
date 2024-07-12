@@ -5,4 +5,4 @@ toc: false
 
 遮是一个予我練習翻譯台語的所在。因為才拄開始，這馬猶無啥物物件通看><。
 
-[測試連結](/docs/andersen)
+[測試連結](docs/andersen)
