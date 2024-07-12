@@ -8,4 +8,4 @@ toc: false
 
 ## 文章
 
-目前所有的文章囥[佇遮](anderson)。
+目前所有的文章囥[佇遮](andersen)。
