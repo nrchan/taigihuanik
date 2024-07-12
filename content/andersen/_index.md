@@ -1,1 +1,1 @@
-![測試圖片](Hans_Andersen's_Fairy_Tales_(1888).png)
+<img src="Hans_Andersen's_Fairy_Tales_(1888).png" width=50%>
