@@ -3,4 +3,4 @@ title: 台語翻譯倉庫
 toc: false
 ---
 
-This is the landing page.
+遮是一个予我練習翻譯台語的所在。因為才拄開始，這馬猶無啥物物件通看><。
