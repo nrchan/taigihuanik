@@ -11,18 +11,19 @@ sidebar:
 <h1 style="text-align:center"> 賣番仔火的查某囡仔 </h1>
 <br>
 
-猶會記得有一年的寒人特別冷，四界暗趖趖，大雪干焦無欲停的款。佇咧烏暗的大路頂懸，有一个可憐的查某囡仔褪赤跤行來行去。伊拄才出門的時陣猶閣有穿鞋，但是彼雙鞋是伊阿母的，對細漢囡仔來講實在是傷過大矣。為著欲閃避兩台直接挵過來的馬車，鞋仔無細意就飛去矣。其中一支已經揣無矣，另外一支去予一个查埔囡仔搶去，閣講等伊未來的紅嬰仔出世，就會使共鞋仔當作搖笱用。可憐的查某囡仔無奈何，只好褪赤跤，用伊紅到變青的跤繼續行。查某囡仔舊舊的 e-pú-lóng 裡底有幾若枝番仔火，手中嘛有幾枝。但是規工落來，無人捌共伊買過番仔火，嘛無人捌寄付過一箍銀。查某囡仔無物通食，寒甲爍爍顫，實在是可憐代。雪落到伊長到相絞起來的頭毛頂懸，猶毋過這對伊已經無要緊了。
+猶會記得有一年的寒人特別冷，四界暗趖趖，大雪干焦無欲停的款。佇咧烏暗的大路頂懸，有一个可憐的查某囡仔褪赤跤行來行去。伊拄才出門的時陣猶閣有穿鞋，但是彼雙鞋是伊阿母的，對細漢囡仔來講實在是傷過大矣。為著欲閃避兩台直接挵過來的馬車，鞋仔無細意就飛去矣。其中一支已經揣無矣，另外一支去予一个查埔囡仔搶去，閣講等伊未來的紅嬰仔出世，就會使共鞋仔當作搖笱用。可憐的查某囡仔無奈何，只好褪赤跤，用伊紅到變青的跤繼續行。查某囡仔舊舊的 e-pú-lóng 內底有幾若枝番仔火，手中嘛有幾枝。但是規工落來，無人捌共伊買過番仔火，嘛無人捌寄付過一箍銀。查某囡仔無物通食，寒甲爍爍顫，實在是可憐代。雪落到伊長到相絞起來的頭毛頂懸，猶毋過這對伊已經無要緊了。
 
-路邊的窗仔門光映映，閣有人兜佇咧食芳貢貢的烘鵝。查某囡仔知影，今仔日是二九暝。伊坐佇咧兩棟樓房中央的邊仔角，共家己攬咧，閣坐佇家己的跤頂懸。就算按呢，伊猶是感覺足冷的。查某囡仔半枝番仔火攏無賣出去，實在是毋敢轉去厝裡。哪是一仙五厘攏無趁到，伊的阿爸會共伊㧌落去；閣再講，轉去嘛無較溫暖，厝裡的壁堵已經攏破空矣，干焦上大的空有用稻草佮破布窒起來爾爾。查某囡仔的手寒甲欲結凍。啊！哪是點一枝番仔火敢若袂䆀。只要有體力共番仔火提出來，用邊仔的壁戛火，就會使共指頭仔焐予燒。查某囡仔共一枝番仔火點落，擗一聲，火就點著了！手裡底的火是偌爾啊溫暖、偌爾啊光，就親像一枝小小的蠟燭，發出五彩的光。對這个查某囡仔來講，伊這馬就親像坐佇咧足大的火爐邊共款，爐仔閣有用青銅做的妝娗。哪有遐溫暖的火！查某囡仔共跤伸出來，敢若咧𤲍（甲夾）燒。唷！想袂到火熊熊就化去矣。查某囡仔心中的爐仔煞消失去，干焦賰燒一半的番仔火佇咧手中。
+路邊的窗仔門光映映，閣有人兜佇咧食芳貢貢的烘鵝。查某囡仔知影，今仔日是二九暝。伊坐佇咧兩棟樓房中央的邊仔角，共家己攬咧，閣坐佇家己的跤頂懸。就算按呢，伊猶是感覺足冷的。查某囡仔半枝番仔火攏無賣出去，實在是毋敢轉去厝內。若是一仙五厘攏無趁到，伊的阿爸會共伊㧌落去；閣再講，轉去嘛無較溫暖，厝內的壁堵已經攏破空矣，干焦上大的空有用稻草佮破布窒起來爾爾。查某囡仔的手寒甲欲結凍。啊！若是點一枝番仔火敢若袂䆀。只要有體力共番仔火提出來，用邊仔的壁戛火，就會使共指頭仔焐予燒。查某囡仔共一枝番仔火點落，擗一聲，火就點著了！手內底的火是偌爾啊溫暖、偌爾啊光，就親像一枝小小的蠟燭，發出五彩的光。對這个查某囡仔來講，伊這馬就親像坐佇咧足大的火爐邊仝款，爐仔閣有用青銅做的妝娗。哪有遐溫暖的火！查某囡仔共跤伸出來，敢若咧𤲍（甲夾）燒。唷！想袂到火熊熊就化去矣。查某囡仔心中的爐仔煞消失去，干焦賰燒一半的番仔火佇咧手中。
 
-查某囡仔趕緊點著另外一枝番仔火。She rubbed another match on the wall. It burst into a flame, and where its light fell upon the wall it became as transparent as a veil, and she could see into the room. The table was covered with a snowy white table-cloth, on which stood a splendid dinner service, and a steaming roast goose, stuffed with apples and dried plums. And what was still more wonderful, the goose jumped down from the dish and waddled across the floor, with a knife and fork in its breast, to the little girl. Then the match went out, and there remained nothing but the thick, damp, cold wall before her.
+查某囡仔趕緊點著另外一枝番仔火。這擺的火拄照著壁，彼壁就敢若會通光，予查某囡仔看著內底的房間。內底的桌仔去予白鑠鑠的桌巾崁咧，頂懸的菜誠腥臊，閣有一隻烘鵝，予人搢了一寡 	lìn-gòo 佮梅干入去。上蓋好的是，彼隻烘鵝竟然對盤子跳落來，胸坎頂懸閣插一枝刀仔佮攕仔，搖搖擺擺，向查某囡仔行去。火煞閣化去矣。除了冷風以外，查某囡仔啥物攏無。
 
 ![](images/the_little_match_seller_1.png)
+<p style="text-align:center"> 賣番仔火的囡仔過身去 </p>
 
-She lighted another match, and then she found herself sitting under a beautiful Christmas-tree. It was larger and more beautifully decorated than the one which she had seen through the glass door at the rich merchant’s. Thousands of tapers were burning upon the green branches, and colored pictures, like those she had seen in the show-windows, looked down upon it all. The little one stretched out her hand towards them, and the match went out.
+伊閣點著一枝番仔火。這擺，伊發現伊坐佇咧一欉足媠的聖誕樹下跤。這欉樹仔甚至比彼間好額的商店內底的彼欉閣較媠。幾千諾枝的蠟燭佇青色的樹枝頂燒，閣有佮櫥窗內底仝款的彩色的畫，囥佇咧更較頂懸。查某囡仔伸手想欲共伊摸，火煞閣化去。
 
-The Christmas lights rose higher and higher, till they looked to her like the stars in the sky. Then she saw a star fall, leaving behind it a bright streak of fire. “Some one is dying,” thought the little girl, for her old grandmother, the only one who had ever loved her, and who was now dead, had told her that when a star falls, a soul was going up to God.
+聖誕節的火敢若愈來愈懸，看佇查某囡仔眼內，就親像天頂的星仝款。這時，有一粒星落落來，尾溜閣拖了一寡火星。「有人欲化去矣...」查某囡仔想著伊已經往生的阿媽捌共伊講過，若是看著星落落來，就表示有人的魂魄欲去揣上帝矣。阿媽是伊這世人當中，唯一一个真正捌疼過伊的人。
 
-She again rubbed a match on the wall, and the light shone round her; in the brightness stood her old grandmother, clear and shining, yet mild and loving in her appearance. “Grandmother,” cried the little one, “O take me with you; I know you will go away when the match burns out; you will vanish like the warm stove, the roast goose, and the large, glorious Christmas-tree.” And she made haste to light the whole bundle of matches, for she wished to keep her grandmother there. And the matches glowed with a light that was brighter than the noon-day, and her grandmother had never appeared so large or so beautiful. She took the little girl in her arms, and they both flew upwards in brightness and joy far above the earth, where there was neither cold nor hunger nor pain, for they were with God.
+查某囡仔閣點著一枝番仔火，這擺的火共伊包圍起來。佇火光當中，伊看著伊的阿媽徛佇遐。阿媽是遐爾清楚、遐爾光，伊會用得看著阿媽疼孫的面腔。「阿媽，」查某囡仔喊出聲，「拜託共我𤆬走。我知影火化去的時，你就會像溫暖的火爐、烘鵝佮聖誕樹仝款無去。」伊規氣共賰的番仔火攏點著，敢若按呢做，就會使共阿媽留咧。番仔火比透中晝的日頭閣較光，阿媽嘛比以前閣較大、閣較	美麗。阿媽共查某囡仔的手牽起來，兩个人歡歡喜喜的離開地表。彼咧所在袂冷、袂枵、閣袂痛，因為遐是上帝蹛的所在。
 
-In the dawn of morning there lay the poor little one, with pale cheeks and smiling mouth, leaning against the wall; she had been frozen to death on the last evening of the year; and the New-year’s sun rose and shone upon a little corpse! The child still sat, in the stiffness of death, holding the matches in her hand, one bundle of which was burnt. “She tried to warm herself,” said some. No one imagined what beautiful things she had seen, nor into what glory she had entered with her grandmother, on New-year’s day.
+天光矣。查某囡仔倚壁倒咧，伊規个喙䫌白死殺，但是猶閣文文仔笑。伊佇舊年的上尾一工冷死矣，只賰新一年的日頭光照佇咧查某囡仔的死體頂爾爾。囡仔的身屍已經𠕇去矣，伊的手閣共燒了的番仔火扱牢牢。「伊敢若想欲共家己焐予燒。」有人按呢講。無人會當想著查某囡仔捌看過諾爾媠的物件，嘛無人想會到伊佮𪜶（亻因）阿媽佇咧新正年頭，來到何等光榮的所在。
