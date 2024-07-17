@@ -25,7 +25,7 @@ Everyone in the whole city knew what a very strange power the fabric had, and we
 
 “I will send my high-principled old minister to the weavers,” thought the emperor; “he will be quite able to discover how the weaving progresses, for he is a sensible man and more fitted for such an office than any one else.”
 
-![](images/the_emperors_new_clothes_1.png)
+![](images/the_emperors_new_clothes_1.jpg)
 <p style="text-align:center"> THE MINISTER VISITING THE WEAVERS. </p>
 
 So the good old minister went to the hall where the impostors were working at their bare looms. “Heaven defend us!” he thought, as he gazed at the looms with wide open eyes; “why I cannot see anything at all;” but he did not utter his thoughts aloud.
