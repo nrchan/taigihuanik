@@ -8,8 +8,4 @@ toc: false
 
 ## 文章
 
-{{< cards >}}
-  {{< card link="anderson/the_little_match_seller" title="賣番仔火的查某囡仔" image="anderson/images/the_little_match_seller_1.png" subtitle="Unsplash Landscape" >}}
-  {{< card link="anderson/the_emperors_new_clothes" title=國王的新衫" image="anderson/images/the_emperors_new_clothes_1.jpg" >}}
-  {{< card link="anderson" title="其他安徒生囡仔古" image="anderson/images/cover.png" >}}
-{{< /cards >}}
+目前所有的文章囥[佇遮](andersen)。
