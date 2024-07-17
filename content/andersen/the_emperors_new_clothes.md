@@ -5,6 +5,10 @@ sidebar:
   exclude: true
 ---
 
+<br>
+<h1 style="text-align:center"> 國王的新衫 </h1>
+<br>
+
 Many years ago, lived an emperor who was so very fond of new clothes, that he spared no expense in order to obtain as many fine dresses as possible.
 
 He did not care about the soldiers of the army, and scarcely ever visited the theatre, and when he did drive out in his carriage it was only to show off his new clothes.
