@@ -6,6 +6,7 @@ toc: false
 
 ## 目錄
 
+- [國王的新衫](the_emperors_new_clothes)
 - [賣番仔火的查某囡仔](the_little_match_seller)
 
 ## 紹介
