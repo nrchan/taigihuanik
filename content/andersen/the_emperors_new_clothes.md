@@ -1,6 +1,8 @@
 ---
 topic: 國王的新衫
 toc: false
+sidebar:
+  exclude: true
 ---
 
 Many years ago, lived an emperor who was so very fond of new clothes, that he spared no expense in order to obtain as many fine dresses as possible.
