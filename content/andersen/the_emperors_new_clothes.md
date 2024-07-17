@@ -9,11 +9,11 @@ sidebar:
 <h1 style="text-align:center"> 國王的新衫 </h1>
 <br>
 
-Many years ago, lived an emperor who was so very fond of new clothes, that he spared no expense in order to obtain as many fine dresses as possible.
+真久真久以前，有一位足愛買新衫的國王。為著欲買新衫，偌濟錢伊攏願意開。
 
-He did not care about the soldiers of the army, and scarcely ever visited the theatre, and when he did drive out in his carriage it was only to show off his new clothes.
+伊無咧管軍隊的兵仔，嘛罕得去看戲。若是坐馬車出門，就干焦是欲展伊新買的衫爾爾。
 
-He had a different suit for every hour of the day, and his subjects, instead of saying, as they do in other kingdoms, “The king is in his council chamber,” here it was always said, “The emperor is in his dressing-room.”
+國王逐點鐘攏咧換衫。別的國家的人民可能會講「國王當佇咧開會」，但是遮的人會講「國王當佇列換衫」。
 
 The great city in which he dwelt was very gay, for every day strangers visited the town. On a certain day two men arrived who gave out that they were weavers, and possessed the secret of weaving the most beautiful fabric that eyes had ever seen. They pretended also that, although the rich colours and designs were as beautiful as the material, yet the latter had a wonderful power of becoming invisible, even when made into clothes, to everybody who was either unsuitable for his position or very stupid.
 
