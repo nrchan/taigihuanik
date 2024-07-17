@@ -1,8 +1,6 @@
 ---
 topic: 賣番仔火的查某囡仔
 toc: false
-sidebar:
-  exclude: true
 ---
 
 ![](images/the_little_match_seller_header.png)
