@@ -15,7 +15,7 @@ sidebar:
 
 國王逐點鐘攏咧換衫。別的國家的人民可能會講「國王當佇咧開會」，但是遮的人會講「國王當佇列換衫」。
 
-The great city in which he dwelt was very gay, for every day strangers visited the town. On a certain day two men arrived who gave out that they were weavers, and possessed the secret of weaving the most beautiful fabric that eyes had ever seen. They pretended also that, although the rich colours and designs were as beautiful as the material, yet the latter had a wonderful power of becoming invisible, even when made into clothes, to everybody who was either unsuitable for his position or very stupid.
+國王蹛的城市真鬧熱，逐工攏有足濟外國人來的。有一工，有兩个講家己是裁縫的人來到這個所在。𪜶（亻因）講𪜶（亻因）知影一種奇妙的方法，會用得車出全世界上媠的布料，媠到無人捌看過。They pretended also that, although the rich colours and designs were as beautiful as the material, yet the latter had a wonderful power of becoming invisible, even when made into clothes, to everybody who was either unsuitable for his position or very stupid.
 
 “To have clothes of such a material as that would just suit me,” thought the emperor. “If I wore them I should soon find out which men in my empire were suited to the positions they filled, and distinguish between the clever and the stupid. Yes, I must have some of that stuff woven for myself.” So he gave an order to the weavers, with a large sum of money in advance, so that they might begin their work immediately.
 
