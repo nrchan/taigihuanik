@@ -6,7 +6,7 @@ toc: false
 
 ## 目錄
 
-- [賣番仔火的查某囡仔](the_little_match_seller.md)
+- [賣番仔火的查某囡仔](the_little_match_seller)
 
 ## 紹介
 
