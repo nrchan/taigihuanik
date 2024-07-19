@@ -15,22 +15,22 @@ sidebar:
 
 國王逐點鐘攏咧換衫。別的國家的人民可能會講「國王當佇咧開會」，但是遮的人會講「國王當佇列換衫」。
 
-國王蹛的城市真鬧熱，逐工攏有足濟外國人來的。有一工，有兩个講家己是裁縫的人來到這個所在。𪜶（亻因）講𪜶（亻因）知影一種奇妙的方法，會用得車出全世界上媠的布料，媠到無人捌看過。They pretended also that, although the rich colours and designs were as beautiful as the material, yet the latter had a wonderful power of becoming invisible, even when made into clothes, to everybody who was either unsuitable for his position or very stupid.
+國王蹛的城市真鬧熱，逐工攏有足濟外國人來的。有一工，有兩个講家己是裁縫的人來到這個所在。𪜶（亻因）講𪜶（亻因）知影一種奇妙的方法，會用得車出全世界上媠的布料，媠到無人捌看過。𪜶（亻因）閣講這種布料做出來的衫五彩的設計媠罔媠，毋過有一種奇巧的性質，若是無夠格抑是戇呆戇呆的人，就算共布料做成衫猶是看袂著的。
 
-“To have clothes of such a material as that would just suit me,” thought the emperor. “If I wore them I should soon find out which men in my empire were suited to the positions they filled, and distinguish between the clever and the stupid. Yes, I must have some of that stuff woven for myself.” So he gave an order to the weavers, with a large sum of money in advance, so that they might begin their work immediately.
+「若是會當穿彼種布做成的衫，」國王咧想，「我就會使知影我的子民敢有夠格，嘛會使知影啥物人較巧、啥物人悾悾矣。無毋著，我一定欲穿著這領衫。」國王紲命令兩个裁縫趕緊開始做工課，嘛予𪜶（亻因）足濟錢的。
 
-The impostors set up two weaving looms, and pretended to be at work, but there was nothing on the looms at all. Then they asked for the finest and the costliest thread of gold and silk, all of which they stowed away safely in a bag, and then worked the empty looms all night.
+兩个諞仙仔提來兩台布機，假做咧做工課。毋過，布機頂懸啥物攏無。𪜶（亻因）閣要求愛予𪜶（亻因）上好的金仔佮上貴的紗仔，提著了後囥佇橐仔內，就繼續佇空空的布機邊無眠無日的做工。
 
-“I should like to know how the weaving gets on,” thought the emperor; but he was greatly troubled with a fear that if he could not see this wonderful stuff on the looms, his subjects would think he was stupid, or not fit for his position.
+「真想欲知影我的衫車到按怎矣。」國王想。毋過，伊驚若是家己看袂著布機頂懸蓋媠的物件，伊的部下會感覺伊頇顢抑是無夠格。
 
-But at last he decided that he could have no cause to fear, yet he would send some one else to look at the looms first, and see how the weaving was progressing.
+上尾，伊想著伊其實無啥好驚的，只要先派人去看這馬車到按怎毋就好矣。
 
-Everyone in the whole city knew what a very strange power the fabric had, and were longing to find out how many would be found unfit for their position, or how the stupidity of their neighbours might be discovered.
+這个怪奇的布料佇城內是通人知的，若是去予人發現家己無夠格抑是無夠巧，厝邊頭尾攏會知。
 
-“I will send my high-principled old minister to the weavers,” thought the emperor; “he will be quite able to discover how the weaving progresses, for he is a sensible man and more fitted for such an office than any one else.”
+國王想，「不如請我彼个人範袂䆀的大臣去看好矣。我看伊肯定看會著彼領衫的，閣較講，伊嘛是理智閣稱職的人。」
 
 ![](images/the_emperors_new_clothes_1.jpg)
-<p style="text-align:center"> THE MINISTER VISITING THE WEAVERS. </p>
+<p style="text-align:center"> 大臣去看裁縫。 </p>
 
 So the good old minister went to the hall where the impostors were working at their bare looms. “Heaven defend us!” he thought, as he gazed at the looms with wide open eyes; “why I cannot see anything at all;” but he did not utter his thoughts aloud.
 
