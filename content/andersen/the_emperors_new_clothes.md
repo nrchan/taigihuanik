@@ -15,13 +15,13 @@ sidebar:
 
 國王逐點鐘攏咧換衫。別的國家的人民可能會講「國王當佇咧開會」，但是遮的人會講「國王當佇列換衫」。
 
-國王蹛的城市真鬧熱，逐工攏有足濟外國人來的。有一工，有兩个講家己是裁縫的人來到這個所在。𪜶（亻因）講𪜶（亻因）知影一種奇妙的方法，會用得車出全世界上媠的布料，媠到無人捌看過。𪜶（亻因）閣講這種布料做出來的衫五彩的設計媠罔媠，毋過有一種奇巧的性質，若是無夠格抑是戇呆戇呆的人，就算共布料做成衫猶是看袂著的。
+國王蹛的城市真鬧熱，逐工攏有足濟外國人來的。有一工，有兩个講家己是裁縫的人來到這個所在。𪜶（亻因）講𪜶（亻因）知影一種奇妙的方法，會用得車出全世界上媠的布料，媠到無人捌看過。𪜶（亻因）閣講這種布料做出來的五彩的衫媠罔媠，毋過有一種奇巧的性質，若是無夠格抑是戇呆戇呆的人，就算共布料做成衫猶是看袂著的。
 
 「若是會當穿彼種布做成的衫，」國王咧想，「我就會使知影我的子民敢有夠格，嘛會使知影啥物人較巧、啥物人悾悾矣。無毋著，我一定欲穿著這領衫。」國王紲命令兩个裁縫趕緊開始做工課，嘛予𪜶（亻因）足濟錢的。
 
 兩个諞仙仔提來兩台布機，假做咧做工課。毋過，布機頂懸啥物攏無。𪜶（亻因）閣要求愛予𪜶（亻因）上好的金仔佮上貴的紗仔，提著了後囥佇橐仔內，就繼續佇空空的布機邊無眠無日的做工。
 
-「真想欲知影我的衫車到按怎矣。」國王想。毋過，伊驚若是家己看袂著布機頂懸蓋媠的物件，伊的部下會感覺伊頇顢抑是無夠格。
+「真想欲知影我的衫車到按怎矣。」國王想。毋過，伊驚若是家己看袂著布機頂懸鮮沢的衫，伊的部下會感覺伊毋是頇顢就是無夠格。
 
 上尾，伊想著伊其實無啥好驚的，只要先派人去看這馬車到按怎毋就好矣。
 
@@ -32,19 +32,19 @@ sidebar:
 ![](images/the_emperors_new_clothes_1.jpg)
 <p style="text-align:center"> 大臣去看裁縫。 </p>
 
-So the good old minister went to the hall where the impostors were working at their bare looms. “Heaven defend us!” he thought, as he gazed at the looms with wide open eyes; “why I cannot see anything at all;” but he did not utter his thoughts aloud.
+老大臣來到諞仙仔做工的房間。「哎喲喂！我哪會啥物攏看無。」大臣看著空空的布機著生驚，毋過伊並無喝出聲。
 
-The two rogues were very polite; they asked him to step nearer, and inquired whether he did not think the pattern very pretty and the colours brilliant.
+兩个佬仔真有禮貌的請大臣倚去看，閣問伊感覺花草敢有媠、色水敢豔色。
 
-The poor old gentleman went forward with eyes open still wider than ever, but he could see nothing, for there was nothing to see.
+可憐的大臣目睭擘金金，無過猶是啥攏看無。究其然布機頂懸本底就啥物攏無。
 
-“Good gracious!” he said to himself, “am I becoming stupid or unfit for my position? I never should have believed it; at the same time I cannot understand why I can see nothing on the weavers’ looms.”
+「哪會按呢！我按呢是傷過戇抑是無夠格？」大臣對家己講，「我實在是無想欲相信，我哪會真實啥攏看無？」
 
-“Now, what do you think of our work?” asked the two weavers.
+「啊你感覺按怎？」裁縫問大臣。
 
-“Oh, it is beautiful, lovely,” said the bewildered old gentleman, looking through hig spectacles. “What a magnificent design, and what gorgeous colouring. Yes, I shall tell the emperor I approve of all I have seen very much,”
+「喲，閣真實媠噹噹咧，」大臣用伊的目鏡看，「我無看過遮爾精巧的花草，伊的色緻嘛真媠款。誠好，我會共國王講我真滿意恁做的衫的。」
 
-“We are charmed to hear this,” they said, as they pointed out the beauty of the pattern and the colours.
+「誠歡喜聽著你按呢講。」裁縫那講，那用指頭仔去比彼領衫好看的花草佮色水。
 
 The old minister listened attentively, that he might be able to explain it all to the emperor in the same words, which he did very correctly.
 
