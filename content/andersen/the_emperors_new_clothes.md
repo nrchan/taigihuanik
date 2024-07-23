@@ -46,13 +46,13 @@ sidebar:
 
 「誠歡喜聽著你按呢講。」裁縫那講，那用指頭仔去比彼領衫好看的花草佮色水。
 
-The old minister listened attentively, that he might be able to explain it all to the emperor in the same words, which he did very correctly.
+大臣聽甲誠斟酌，那聽那記。伊共聽著的話共國王講，一字攏無落勾。
 
-After this the impostors applied for more money in advance and more gold and silken thread, which they readily obtained, and also stowed away in the same bag. Then they continued their pretended work at the looms, but not a single thread was used.
+兩个佬仔閣再要求更加較濟的黃金佮紗仔，提著了後，又閣囥佇仝款的橐仔內底。𪜶（亻因）繼續假做咧做代誌，毋過布機猶是空空。
 
-The emperor soon after sent another statesman to see how the weaving was going on, and to inquire whether the stuff would soon be ready. But it was exactly the same with him as with the first. He almost made himself half blind with looking; but as there was nothing on the looms, he could see nothing.
+無過偌久，國王閣遣另外一个人去看這馬的進度，順紲問看𪜶（亻因）敢欲完成矣。猶毋過，這擺的結果猶是仝款，布機本底就啥物攏無，閣再看嘛是看無。
 
-“I am not stupid,” said the man to himself; “I suppose, therefore, I am not fitted for my situation. That, however, is a ridiculous idea, but I must not say a word about it to anyone.” So he praised the tissue he could not see, and told the weavers how greatly he admired the design and the colours. “It is really lovely,” he said to the emperor.
+「我都無咧戇，」彼个人想，「若是我看無，敢就代表講我無夠格？哎呦，遮爾譀古的代誌，我是袂予別人知的。」伊共裁縫呵咾講𪜶（亻因）用的布足媠的，花草佮色水嘛誠好看。「看起來真正袂䆀。」伊共國王報告的時按呢講。
 
 Everyone in the city now talked about the beautiful fabric, and then the emperor expressed a wish to see for himself what this wonderful stuff was like, while still on the loom. He took a number of gentlemen with him, among whom were the two honest statesmen who had been there already.
 
