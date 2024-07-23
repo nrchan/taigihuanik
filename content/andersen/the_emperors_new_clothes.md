@@ -54,15 +54,15 @@ sidebar:
 
 「我都無咧戇，」彼个人想，「若是我看無，敢就代表講我無夠格？哎呦，遮爾譀古的代誌，我是袂予別人知的。」伊共裁縫呵咾講𪜶（亻因）用的布足媠的，花草佮色水嘛誠好看。「看起來真正袂䆀。」伊共國王報告的時按呢講。
 
-Everyone in the city now talked about the beautiful fabric, and then the emperor expressed a wish to see for himself what this wonderful stuff was like, while still on the loom. He took a number of gentlemen with him, among whom were the two honest statesmen who had been there already.
+消息湠開了後，逐家攏咧討論這塊媠布，國王嘛想欲親身去看。伊佮一寡大臣鬥陣去，其中嘛有進前去看過的彼兩个人。
 
-The emperor approached the looms at which the two artful impostors were working with all their might, although there was not a single thread on the looms.
+國王來到布機頭前，兩个佬仔閣咧拍拚做工課，雖然布機半條線攏無。
 
-“Is it not magnificent?” exclaimed the two honest statesmen who already knew all about it. “Will your majesty come a little nearer, and examine the pattern and the bright colours?” The looms appeared empty and bare when they pointed to them, but they believed that every one but themselves would see the material plainly.
+「是毋是足媠的？」兩位捌來過、上老實的人問國王。「陛下請倚較近咧，看覓這領衫的花草佮色水啥款？」𪜶（亻因）比向空空的布機，閣相信別人其實看有。
 
-“How is this?” said the emperor to himself. “I can see nothing; this is really dreadful. Am I stupid? Am I, as emperor, unfit for my position? It would be the most dreadful thing if that could happen to me. Oh, really, it isvery beautiful,” he said, aloud; “it merits my highest approval in every way;” and he nodded as if quite satisfied at the bare looms, for he would not own that he saw nothing.
+「哪會按呢？」國王問家己，「我哪會啥物攏看無？我敢是傷戇，抑是無夠格做國王？這聲腫頷矣！」「實在是蓋媠呢，」國王大聲講，「我誠佩服恁的工夫。」國王直直頕頭，袂輸真滿意布機頂懸無影的衫，伊當然毋肯承認伊其實啥攏看無。
 
-All, however, who accompanied the emperor saw no more than he did, yet they agreed with him, when he said again, “Yes, it is very beautiful,” and advised him to have some new clothes made of this magnificent fabric, to wear at the first grand procession. “How delightful! how charming! excellent!” sounded from mouth to mouth, and every one seemed contented, especially when the emperor, decreed that the two weavers should in future bear the title of “Court Weavers.”
+鬥陣來的其他人嘛是啥攏看無，不而過，𪜶（亻因）嘛是佮國王做伙褒嗦彼領衫。「確實足媠的。」國王閣講一擺，伊下令裁縫閣繼續做幾領，伊欲佇伊頭一改大遊行的時陣穿。「誠媠！誠好看！誠實袂䆀！」眾人你一句我一句的呵咾，逐家看起來攏誠歡喜，尤其是國王，伊共彼兩个裁縫冊封做「朝廷裁縫」。
 
 The impostors were up the whole night before the day of the grand procession, and had more than twenty lights burning, so that people could see that they were busily at work on the emperor’s new clothes.
 
